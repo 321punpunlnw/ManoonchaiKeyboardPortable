@@ -1,2 +1,2 @@
-# ManoonchaiKeyboardPortable
-Manoonchai Keyboard Layout Portable version
+Readme อะไรไม่มีหรอก
+AI เขียนทุกอย่าง ลองโหลดๆเอาไปใช้งานดูครับ 555555555
